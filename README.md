@@ -29,3 +29,4 @@ Der Build läuft über GitHub Actions (`.github/workflows/deploy.yml`) und wird 
 npm i
 npx quartz build --serve
 ```
+
