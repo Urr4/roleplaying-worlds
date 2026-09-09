@@ -1,0 +1,1 @@
+Robert Antoine III. ist der [[Leiter der Gezeitengilde|Leiter der Gezeitengilde]] in [[Paspaturia]]. Er ist ein renommierter Gezeitenmagier, der sich spezialisiert hat, um die Gezeiten des [[Tempest Rift]] zu kontrollieren und die Stadt vor den daraus resultierenden Stürmen und Tsunamis zu schützen.

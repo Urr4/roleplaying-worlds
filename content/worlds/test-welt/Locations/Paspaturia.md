@@ -1,0 +1,1 @@
+[[Paspaturia]] liegt an einer riesigen Anhöhe und hat eine einzigartige Position, da sie direkt an dem [[Tempest Rift]] des Meeres liegt. Die Stadt ist berühmt für ihre Gezeitenmagier, die unter dem [[Robert Antoine III.]] lehrt und die Stadt vor den heftigen Gezeiten schützen.
