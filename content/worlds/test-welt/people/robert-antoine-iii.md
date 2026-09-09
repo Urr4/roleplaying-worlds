@@ -1,0 +1,4 @@
+# Robert Antoine III.
+
+Robert Antoine III. ist ein bekannter Magier und Leiter der Gezeitengilde in [[Paspaturia]]. Er leitet die Ausbildung der Schutzmagie, die Zauber ermöglicht, die Tsunamis abzulenken und die Stadt vor Zerstörung zu schützen.
+
